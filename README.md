@@ -2,7 +2,7 @@
 
 Sakinder Ali
 
-# Title1: The Silent Specter
+# Chapter 1: The Silent Specter
 
 In a quiet room bathed in the amber glow of a setting sun, Sakinder Ali sat at his desk, deeply engrossed in his traditional routine of engineering sketches and research notes. The hum of his computer filled the air, blending seamlessly with the rhythm of his thoughts. His world was one of precision and control, where logic ruled and chaos had no place.
 
@@ -32,10 +32,9 @@ Slowly, the unseen began to steal his understanding. Files disappeared from his 
 ### Conflict Escalation
 In his mind's eye, the unseen created a battle—a tormenting conflict of unseen versus unseen, an endless loop of self-doubt and external control.
 
-### Epilogue
 
 
-# Title2: 
+# Chapter 2: Epilogue
 
 The torment continued, pushing Sakinder to his mental limits. Yet, within the chaos, a flicker of defiance grew. He began to question the unseen force, seeking to reclaim his autonomy. The story ends ambiguously, leaving the reader to wonder whether Sakinder would triumph over his invisible adversary or remain a puppet in its grasp.
 
@@ -68,7 +67,7 @@ Through it all, Sakinder pondered the deeper meaning of fear, faith, and freedom
 
  
 
-# Title3: The Journey of Sakinder Ali: Struggles and Resilience
+# Chapter 3: The Journey of Sakinder Ali: Struggles and Resilience
 
 
 
