@@ -25,6 +25,10 @@ That summer morning became a turning point for Sakinder Ali. It marked the begin
 
 ## Overall
 
+### Good and Evil as a Universal Fabric
+Through his profound experiences, Sakinder has developed theories about the moral dimensions of human existence. He perceives good and evil as fundamental components of the universe’s fabric, much like binary logic in digital systems. His work involves integrating these moral frameworks into conceptual models that explore their impact on humanity and the cosmos.
+
+
 ### The Nothing Domain
 The story delves into a realm beyond space and time—an unexplored "nothing domain"—that challenges all known concepts of existence. It explores humanity’s fragile understanding of the universe and reveals the profound mysteries underlying reality.
 
