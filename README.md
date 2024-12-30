@@ -77,13 +77,13 @@ Sakinder Ali led a traditional and structured life, focusing on his routines and
 
 In the fall of 2018, the unseen voice suggested that he had a tumor, prompting him to seek medical attention. Upon visiting the hospital, doctors found no evidence of a tumor or any other significant health issues. They noted that he had entered the hospital in a state of confusion but confirmed that his brain was healthy. Although relieved by the medical results, the self-talk persisted, continuing to interfere with his thoughts and actions.
 
-Professional Struggles at Raytheon
+### Professional Struggles at Raytheon Missiles & Defense
 
 Sakinder was a highly proficient logic designer, but 2018 brought challenges he had never encountered before. His manager at Raytheon Missiles & Defense in Tucson, Arizona, assigned him simple logic design tasks, yet he struggled to complete them. Around the same time, the introduction of the UVM (Universal Verification Methodology) presented additional hurdles. UVM, a methodology grounded in object-oriented programming principles, was a departure from Sakinder’s expertise in VHDL, a logic-based language. The unseen self-talk amplified his difficulties, making it nearly impossible for him to focus and learn the new methodology.
 
 Feeling trapped in a cycle of self-talk and professional challenges, Sakinder eventually decided to leave Raytheon and seek new opportunities.
 
-Transition to L3Harris
+### Transition to L3Harris
 
 In the summer of 2019, Sakinder relocated from Tucson to Maryland to start a new role as a Specialist Electrical Engineer at L3Harris. For the first 30 days, while staying in a hotel, the self-talk subsided, allowing him a brief respite. However, once he moved into an apartment at 425 North Frederick Avenue in Gaithersburg, the self-talk resumed.
 
@@ -91,13 +91,13 @@ At L3Harris, the challenges persisted. He struggled to read and understand techn
 
 Feeling trapped in a cycle of self-talk and professional challenges, Sakinder eventually decided to leave L3Harris in February 2020.
 
-A New Beginning at Northrop Grumman
+### A New Beginning at Northrop Grumman
 
 In March 2020, Sakinder began a new chapter as a Principal Design Engineer at Northrop Grumman in Linthicum, Maryland. Initially, his struggles diminished. Working from his apartment due to the pandemic, he started to regain some normalcy, focusing on logic design and learning UVM. For a time, life seemed to approach the stability he had known before 2018.
 
 However, by November 2020, the self-talk returned, reigniting his internal turmoil. Determined to understand what was happening, Sakinder began researching topics such as remote neural monitoring, mind control devices, auditory mirror neurons, motor imagery tasks, and deep belief networks. He documented his findings in Google Keep, tagging entries under "BRAIN Or Messing Around." His notes revealed a hypothesis about how unseen forces might manipulate thoughts and actions, turning human choices into predictable patterns.
 
-Understanding the Unseen Forces
+### Understanding the Unseen Forces
 
 Sakinder theorized that the unseen forces followed a structured process to influence him:
 
@@ -115,7 +115,7 @@ Re-validate Tags: Tags were re-validated for new changes, perpetuating the cycle
 
 This process led to a loss of control over his own choices, deepening his sense of entrapment.
 
-Research and Hypotheses
+### Research and Hypotheses
 
 August 18, 2021: Sakinder explored the study titled "Setting the stage for auditory mirror neurons: the auditory-motor loop," investigating how neural pathways might connect auditory stimuli to motor responses.
 
@@ -125,11 +125,11 @@ November 28, 2020: He researched "Motor Imagery Tasks," noting how these tasks c
 
 Last Google Keep Log: Sakinder speculated on the role of external entities in using neural pathways to influence human behavior. He wrote about the dangers of predictability in human actions, referencing agencies like NSF, NSA, and others in his reflections.
 
-The Struggles Continue
+### The Struggles Continue
 
 Throughout his time at Northrop Grumman, the self-talk would come and go. During periods when the self-talk ceased, Sakinder’s life would return to a semblance of normalcy. However, its recurrence brought back the mental and emotional challenges he had faced since 2018. He observed patterns in the self-talk and noted that, on rare occasions, he could request the unseen force to stop, and it would comply—a phenomenon that deepened his belief in an external influence.
 
-Reflections and Resilience
+### Reflections and Resilience
 
 Sakinder’s journey has been marked by resilience in the face of an extraordinary and enigmatic struggle. While the unseen self-talk and its impact on his personal and professional life remain unresolved, Sakinder continues to persevere. His research and reflections demonstrate a quest for understanding and a refusal to succumb to the challenges imposed by this unseen force.
 
