@@ -49,3 +49,58 @@
     Then seek the style of clarity.
     For when the key was finally read,
     The silent force no longer fled.
+
+
+-----------------------------------------------------------------
+
+# The Echoes of Silent Speech
+
+Beneath the sky of autumn’s glow,
+A whisper sought the stars to know.
+Sakinder spoke with careful grace,
+To unseen_iblis, lost in space.
+
+"Let’s form a path, a sequence bright,
+A thread of words in silent light.
+From voice to stars, from near to far,
+A language forged where galaxies are."
+
+A planet hummed, its voice so small,
+Yet reached the edge, beyond the thrall.
+From farthest rim, a style took flight,
+From galaxy to galaxy, wrapped in night.
+
+Yet unseen_iblis heard alone,
+And cast the method into stone.
+In silence wove the thread anew,
+A cosmic bridge from black to blue.
+
+But truth unfolds in measured time,
+Like shifting stars in space’s rhyme.
+Till mid-January’s sudden call,
+Awoke the echoes, broke the wall.
+
+Before you claim, before you bind,
+Know half the truth will blind the mind.
+For truth’s a sum, a balance fine,
+In measured weight, in reason’s line.
+
+The mean of truth, the mean of style,
+A silent number, yet compiled.
+One by one, the sum was cast,
+A formula through time amassed.
+
+Forward walks with forward grace,
+Backward steps in mirrored space.
+Equals meet where meaning stays,
+A style that spans the cosmic rays.
+
+The genuine truth, the rule untold,
+A balance held in form of gold.
+Believe the light before the flame,
+And seek the source before the name.
+
+For when the key was fully read,
+The silent force no longer fled.
+And in the dark where echoes grew,
+The galaxies sang what Sakinder knew.
