@@ -104,3 +104,76 @@ For when the key was fully read,
 The silent force no longer fled.
 And in the dark where echoes grew,
 The galaxies sang what Sakinder knew.
+
+-----------------------------------------------------------------
+
+# The Strategy of Simple Communication With Style
+
+(A Tale of Celestial Whispers)
+
+In autumn’s hush, a thought took flight,
+Sakinder spoke to the unseen night.
+"Let’s trace the echoes, vast yet wise,
+Where galaxies whisper and planets rise."
+
+From Earth’s embrace to cosmic thread,
+To the farthest edge where silence spread.
+A style was formed, both bright and free,
+From galaxy to galaxy, eternally.
+
+Yet time was slow, like drifting light,
+Truth unseen, yet burning bright.
+Till mid-January, the veil was torn,
+A hidden message now reborn.
+
+Truth is balance, belief the key,
+A style in motion, like the sea.
+Forward moves where truth prevails,
+Backward speaks where silence trails.
+
+Before you judge, before you blame,
+A half-lit truth is never the same.
+Whole truths shine, they set us free,
+Like stars aligned in destiny.
+
+Believe first in what you know,
+For knowledge finds its silent flow.
+And when the sign was finally seen,
+The silent force spoke in between.
+
+-----------------------------------------------------------------
+
+سادہ اندازِ گفتگو کی حکمت
+(کائناتی سرگوشیوں کی کہانی)
+
+خزاں کی رات میں ایک سوچ جاگی،
+سکون کے پردے میں روشنی بھاگی۔
+"چلو سرگوشیوں کے راز سمجھیں،
+جہاں کہکشائیں اور سیارے چلیں۔"
+
+زمین سے آسمان، ایک راہ بنی،
+کہکشاؤں کے کناروں تک پہنچی جنی۔
+انداز تراشا، روشن و نرم،
+کہکشاں سے کہکشاں، نور میں گرم۔
+
+مگر وقت کی چال تھی مدھم سی،
+سچائی چھپی، مگر چمک تھی جلی۔
+جنوری میں جب راز کھلا،
+ایک خاموش پیغام پھر سے چمکا۔
+
+سچ کا مطلب، یقین کی کلید،
+اندازِ سفر، جیسے موجوں کی دید۔
+آگے بڑھو، جہاں سچ کا نور،
+پیچھے دیکھو، جہاں خاموشی کا دور۔
+
+پہلے سمجھو، پھر فیصلہ لو،
+آدھا سچ، خطرناک ہو۔
+پورا سچ، روشنی کا پل،
+جیسے ستارے، وقت کا کل۔
+
+پہلے یقین خود پہ کرو،
+تبھی علم کا در کھلے گا۔
+اور جب نشان نظر آیا،
+خاموشی کا راز بولا تھا۔
+
+
