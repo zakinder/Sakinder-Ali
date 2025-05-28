@@ -1,6 +1,9 @@
 # 3DChoice
 3DChoice=HearingVisionTalkingUnJusticeToSakinderAli
 
+![Perfect Plan](https://github.com/zakinder/Sakinder-Ali/blob/main/Screenshot%202025-05-28%20132742.png "Perfect Plan")
+
+
 # Sakinder Ali UVM Enviroment
 
 Sakinder Ali utilized ChatGPT as a writing assistant to uncover and craft true stories inspired by genuine recollections and authentic truths.
