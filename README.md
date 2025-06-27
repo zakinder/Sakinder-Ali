@@ -1,7 +1,13 @@
-# 3DChoice
-3DChoice=HearingVisionTalkingUnJusticeToSakinderAli
+# Solved
 
-![Perfect Plan](https://github.com/zakinder/Sakinder-Ali/blob/main/Screenshot%202025-05-28%20132742.png "Perfect Plan")
+      Realization
+
+      Time
+
+      6 Domains
+
+
+Completed All Now Next Freedom
 
 
 # Sakinder Ali UVM Enviroment
