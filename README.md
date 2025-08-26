@@ -7,7 +7,9 @@
       6 Domains
 
 
-Completed All Now Next Freedom OF 1UNSEEN WONDERING?
+# Completed All Now Next Freedom OF 1UNSEEN WONDERING?
+
+SAKINDER:ITS A SET OF COUTROOM WHERE ONEWAY TO NOWAYOUT.
 
 
 # Sakinder Ali UVM Enviroment
